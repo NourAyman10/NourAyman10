@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nour.ayman10102002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bwOSdgFhV2sKLVslfoubDtur1ppTTD9k/view](https://drive.google.com/file/d/1bwOSdgFhV2sKLVslfoubDtur1ppTTD9k/view)
+- 📄 Know about my experiences [My resume](https://drive.google.com/file/d/1bwOSdgFhV2sKLVslfoubDtur1ppTTD9k/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
